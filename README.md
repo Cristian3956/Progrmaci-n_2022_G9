@@ -1,1 +1,0 @@
-# Progrmaci-n_2022_G9
